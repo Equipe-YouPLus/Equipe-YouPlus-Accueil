@@ -1,2 +1,9 @@
 # Equipe-YouPlus-Accueil
-Accueil de l'équipe
+
+**Petite règle sur l'équipe**
+- Ne pas rien faire
+- Rester gentil
+- autre....
+
+**RECRUTEMENT :**
+https://forms.gle/FtQ7xQuLg3XetXCW9
